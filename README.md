@@ -2,4 +2,4 @@
 
 Hi All
 
-Very new to this and just learing for now
+Very new to this and just learning for now
